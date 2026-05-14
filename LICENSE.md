@@ -1,4 +1,4 @@
-# 
+# automatic 7-Zip for PC | 7-Zip for Windows Addon | context-menu-integration + high-compression-ratio offers the most advanced 7-Zip for PC | 7-Zip for Windows addon, with
 
 
 
